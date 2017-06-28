@@ -1,4 +1,5 @@
-#This is Stealthinator16
+<b>This is Stealthinator16<b>
+
 A weird username? Maybe. I got it when  I was a kid and used to read Wimpy Kid books. In the second book of the serious, Greg got a new nickname which was, yeah correct!, Stealthinator, for stealig clips of girls' change room. That was when I used a username for the first time and it stuck. 16 is the number which I believed to be lucky(not now) and has stuck too.
 
 My real name is Kushagra Tiwari. I live in India. I am 15 on the day of writing (this is 2017). I am someone you'd call a jack of all trades and master of none. I have extremely varied interests and havn't yet decided what to do in life. I might end up being a software developer, a blogger, an author or work for IFS (Indian Foreign Service).
